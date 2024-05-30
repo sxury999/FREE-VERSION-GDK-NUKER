@@ -1,0 +1,1 @@
+i am not responsible to what happens to anyone or your self with my tool if you want the paid version go to my github it will be up in a couple of weeks https://github.com/sxury999https://github.com/sxury999
